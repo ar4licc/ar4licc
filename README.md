@@ -1,41 +1,4 @@
 <img src="https://files.catbox.moe/77txte.png"/> 
 <img src="https://64.media.tumblr.com/f3dadd8d6e243c004598b0cae73d3161/6b6cef5fada6f113-d2/s2048x3072/90e19ce97541da363e26a107699cf9929a6d9e75.pnj"/>
-testing[link(https://spacehey.com/dar1ingex)
 
-
-<img src="https://file.garden/Zi5zgfZ0yRV4IO1A/IMG_6235.png"/> 
-<img src="https://64.media.tumblr.com/fde56645083baf6ccac12f465c201599/33a74576316e8805-1e/s100x200/5efaff10abb3591dc38b3fd6e6ce811d73c2028d.gifv"/>
-<img src="https://64.media.tumblr.com/2de722d1a06d218a1ce5dd21ff7cfa57/7bc6118c94a26d48-07/s100x200/3a6661103c8b5cc5397deb960da79803ce07dca3.pnj"/>
-<img src="https://64.media.tumblr.com/ea77be550f835f4d4a87d43928661cda/2392e7c1f6f7c3e5-98/s100x200/ee33e90897f4faa016ba64951a5be71a33766ffe.gifv"/>
-<img src="https://64.media.tumblr.com/fedbf4d1db5c0efc908d5ff17c79ccd3/b31d0a9ab31ddd2c-a5/s100x200/a691464a672d3883cd7cdb48a05c782b3d204d47.pnj"/>
-<img src="https://64.media.tumblr.com/42a23627c27f26ce7513eb12c1478071/c495a0382d73cb17-54/s100x200/e95bc6cf5ff338a228bfae77803db87939a50ea0.pnj"/>
-<img src="https://64.media.tumblr.com/58bc1177860f973f2f85b53f66d8087b/bbf64abb307854e5-fc/s100x200/7ea61b31546fdea5e78ab0959c999cef0618f0b4.pnj"/>
-<img src="https://files.catbox.moe/bc43qg.png"/>
-<img src="https://64.media.tumblr.com/8bf50b87d20aed29178d6278e82355d0/f13fa229e6d0de97-05/s100x200/0f4315bbd723ffe5c8b8349f6c5c49328af8d9dd.gifv"/>
-<img src="https://64.media.tumblr.com/d0fb5e69d21cbf16de61550912f3f6be/50dd5b6b6ea5400f-cc/s100x200/756289c9032bbf640582b9e17137ac72cb11e35a.gifv"/>
-<img src="https://files.catbox.moe/12i4ro.png"/>
-<img src="https://files.catbox.moe/nfq16p.png"/>
-<img src="https://files.catbox.moe/afjy4g.png"/>
-<img src="https://files.catbox.moe/gwmmlf.png"/>
-<img src="https://files.catbox.moe/kin6nc.png"/>
-<img src="https://64.media.tumblr.com/9d51e9710d24283290d83c095614f818/b7901f3d4f19061e-4b/s100x200/145f8d76e893ff618962e656f0a40c04befad6cc.gifv"/>
-<img src="https://64.media.tumblr.com/6fe5bff08345cfc3d6652c814762ccd0/608b39d909ca78a8-84/s100x200/98fb811e531a5876e88e43762747a7bc2f188df4.pnj"/>
-<img src="https://64.media.tumblr.com/babed88eaaef3bd656c59bad970c32d0/98d213d704a93150-93/s100x200/5ea9e734b7e59db807b9d978a8185f9313a8b534.gifv"/>
-<img src="https://64.media.tumblr.com/27fd159d2207af934fe04d1f1b8c2c5e/82b09546462aa32b-f9/s100x200/741f6975ebf2ecc8c36f75280a592f1c692143b1.gifv"/>
-<img src="https://64.media.tumblr.com/a058b6df5803aceaa24048ab4b77cb34/82b09546462aa32b-5f/s100x200/92220f50a2c9d7170e6f41edc345eef41e1bd8bd.gifv"/>
-<img src="https://64.media.tumblr.com/d5ce9a8ecc8461ce4b9c38dd092cedf5/024d7b4e164001e2-d0/s100x200/53d1ab6a1ff7564411d9cf5b536426fd0c19db60.pnj"/>
-<img src="https://files.catbox.moe/9j1lga.png"/>
-<img src="https://files.catbox.moe/jy87ou.png"/>
-<img src="https://files.catbox.moe/pg5hrf.png"/>
-<img src="https://files.catbox.moe/jni40e.png"/>
-<img src="https://files.catbox.moe/sb36ud.png"/>
-<img src="https://files.catbox.moe/hao09a.png"/>
-<img src="https://files.catbox.moe/aisppw.png"/>
-<img src="https://files.catbox.moe/rwqy91.png"/>
-<img src="https://files.catbox.moe/xgxt48.png"/>
-<img src="https://64.media.tumblr.com/e91736cbc237618b567070468b5dc573/ac4089a406d8046b-62/s100x200/3f34ff06406a40fd3d456414a0e11eb7c09f01ad.gifv"/>
-<img src="https://files.catbox.moe/mbpyh8.png"/>
-<img src="https://files.catbox.moe/3kt3cw.png"/>
-<img src="https://files.catbox.moe/2enq82.png"/>
-<img src="https://files.catbox.moe/wdxdc9.png"/>
-<img src="https://files.catbox.moe/e3qnl5.png"/>
+‎ ‎ ‎ ‎ ‎ ‎ ㅤ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://spacehey.com/dar1ingex">space</a>$${\color{#686A8C}hey ㅤ}$$ ‎ ‎ ‎
