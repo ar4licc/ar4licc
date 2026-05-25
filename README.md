@@ -5,4 +5,4 @@
 
 <img src="https://64.media.tumblr.com/f3dadd8d6e243c004598b0cae73d3161/6b6cef5fada6f113-d2/s2048x3072/90e19ce97541da363e26a107699cf9929a6d9e75.pnj"/>
 
-</a>$${\color{#686A8C}w2i ㅤ}$$
+</a>$${\color{#686A8C}Usually offtab/afk so w2i. Plz check my byi/dni in my carrd b4 deciding to srsly become friends. ㅤ}$$
